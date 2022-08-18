@@ -24,5 +24,5 @@ Duties include: Procurement, inventory, warehousing, grading, pricing, billing, 
 <h4>Liscenced Irrigation technician</h4> 
 <em>2002 — 2018</em><br>
 Installed residencial, commercial and agricultural irrigation systems all over the Northeastern United States
-Duties included: Pipe fitting, electrical, Long haul/towing, heavy machinery operation, computer and sensors installation etc.. 
+Duties included: Pipe fitting, electrical, long haul/towing, heavy machinery operation, computer and sensors installation etc.. 
 
